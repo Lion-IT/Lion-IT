@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lion-IT
-- 👀 I’m interested IT :-)
-- 🌱 I’m currently learning many things
+- 👀 I’m IT specialist 8-)
+- 🌱 I’m currently very busy men
 - 📫 Contact to me -> dev@lion-it.pl
 
 <!---
